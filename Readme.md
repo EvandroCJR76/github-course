@@ -14,9 +14,4 @@
 
 
 
- outros cursos em : [Evandro Cursos] 
-
-
-
-
- kkkkkkkkk......kkkkkkkk.....kkkkkk
+ outros cursos em : [Evandro Cursos]
